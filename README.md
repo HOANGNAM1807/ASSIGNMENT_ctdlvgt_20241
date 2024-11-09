@@ -1,2 +1,0 @@
-# ASSIGNMENT_ctdlvgt_20241
-Assignment_Week
